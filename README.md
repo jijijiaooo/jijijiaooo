@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on my fellow gay men
 - 📫 You can reach me through my personal email at lojiaoshih@gmail.com
 - 😄 Pronouns: Anyhting you can think of
-- ⚡ Fun fact: I can move my ears and do the clver tongue. 
+- ⚡ Fun fact: I can move my ears and do the clover tongue. 
 
 <!---
 jijijiaooo/jijijiaooo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
